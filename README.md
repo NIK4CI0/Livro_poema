@@ -7,6 +7,7 @@ Olá! Bem vindos aos meus poemas favoritos :raising_hand_woman:
 - Ou isto ou aquilo - Cecília Meireles
 - José - Carlos Drummond de Andrade 
 - Timidez - Cecília Meireles 
+- Não se mate - Carlos Drummond de Andrade 
 
 
 
